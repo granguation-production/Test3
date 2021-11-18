@@ -22,3 +22,8 @@ rarirurero
 wawonn
 
 
+バトルマスターに俺はなった！
+
+
+
+
