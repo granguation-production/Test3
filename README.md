@@ -11,4 +11,14 @@ tatituteto
 
 naninuneno
 
+hahihuheho
+
+mamimumemo
+
+yayuyo
+
+rarirurero
+
+wawonn
+
 
